@@ -1,1 +1,1 @@
-Every addition to true knowledge is an addition to human powe
+a script that displays the result of BREATH to the power LOVE
